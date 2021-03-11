@@ -1,4 +1,4 @@
-# Stephanie Thornley
+# Stephanie Thornley 🙂
 
 Hello! I'm Stephanie, a Junior Software Developer from Leeds.
 
